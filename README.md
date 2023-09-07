@@ -1,0 +1,1 @@
+# Development-of-Annual-Average-Wages-USD-
